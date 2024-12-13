@@ -1,1 +1,0 @@
-# Jornada-Nascer-de-Novo
